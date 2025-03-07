@@ -16,6 +16,11 @@
 
 ![image](https://github.com/user-attachments/assets/7ecce589-84fe-4fb3-9367-5345f4e1184b)
 
+## 2022:
+![image](https://github.com/user-attachments/assets/b70b217c-0cf3-4704-9394-d0c6acce09ea)
+
+![image](https://github.com/user-attachments/assets/4c228180-681d-4a71-b4ba-f85d17106b66)
+
 ## 2020:
 ![image](https://github.com/user-attachments/assets/c60730ab-e8c5-4e97-a57d-6477745ce4f6)
 
